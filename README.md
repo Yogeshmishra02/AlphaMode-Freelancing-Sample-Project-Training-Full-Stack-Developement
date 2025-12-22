@@ -1,0 +1,1 @@
+# AlphaMode-Freelancing-Sample-Project-Training-Full-Stack-Developement
